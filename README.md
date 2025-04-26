@@ -1,6 +1,8 @@
 # Welcome!
 Hi there! My name is Rosey, but you can also call me Kai if you know me by that name~ If you've spotted me on PT, I'm usually there for a variety of reasons; I might be recovering from a chronic flare up and just want to chill, I may be working on art/new pony skins, or I may be eepy and just want to chill with small horses. I'm almost always on the 18+ server, but I'm a SFW player. I don't engage in NSFW stuff on PonyTown.
 
+Most of the time I'm offtab multitasking, either drawing and reading or watching something. Whisper to get my attention, otherwise I might miss your message!
+
 Something important to note; I don't roleplay - Sorry!
 
 # Hides & Blocks
