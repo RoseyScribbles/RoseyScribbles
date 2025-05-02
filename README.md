@@ -1,4 +1,8 @@
-# Welcome!
+# Welcome! This is a work in progress! 
+Since April 15, 2025 I've been recovering from some pretty serious health issues that impact my energy levels and overall wellbeing. If I don't respond right away, it's never intentional - I'm probably fighting a flareup or tabbed out to watch something. I'll update this properly whenever I get the chance to.
+
+════════════════ ★🌙★ ════════════════
+
 Hi there! My name is Rosey, but you can also call me Kai if you know me by that name~ If you've spotted me on PT, I'm usually there for a variety of reasons; I might be recovering from a chronic flare up and just want to chill, I may be working on art/new pony skins, or I may be eepy and just want to chill with small horses. I'm almost always on the 18+ server, but I'm a SFW player. I don't engage in NSFW stuff on PonyTown.
 
 Most of the time I'm offtab multitasking, either drawing and reading or watching something. Whisper to get my attention, otherwise I might miss your message!
